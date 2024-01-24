@@ -113,3 +113,26 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+
+### Mini Oreo Bites
+
+Ingredients:
+- 1/2 cup crushed Oreo cookies
+- 1 tbsp melted butter
+- 4 oz cream cheese, softened
+- 2 tbsp granulated sugar
+- 1/2 egg
+- 1/4 tsp vanilla extract
+- 2 tbsp sour cream
+- Miniature Oreo cookies for garnish (optional)
+
+Instructions:
+1. Preheat oven to 325°F (163°C). Line a mini muffin tin with paper liners.
+2. Mix crushed Oreo cookies with melted butter. Press half a teaspoon of the mixture into each muffin cup.
+3. Beat cream cheese until smooth. Add sugar and beat until creamy.
+4. Add half an egg, vanilla extract, and fold in sour cream until just combined.
+5. Spoon the cream cheese mixture over the Oreo crusts, filling each cup almost to the top.
+6. Bake for 8-10 minutes or until edges are set and centers are slightly jiggly.
+7. Cool in the muffin tin for 5 minutes, then transfer to a wire rack to cool completely.
+8. Optionally, garnish each mini cheesecake with a miniature Oreo cookie.
+9. Refrigerate for 1 hour before serving.
